@@ -1,0 +1,1 @@
+# Mapa_Suscetibilidade_NIT_23_11
